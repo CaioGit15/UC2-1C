@@ -13,4 +13,4 @@
 #Caio Barreto Fontelles Cordeiro
 
 Atividade 1 : Trello link
--[grupo](link)
+-[Grupo: Caio Barreto, Lucas Kiemle, Paulinna e Allan] (https://trello.com/invite/b/GOPJrfkO/ATTI2e2f15b4c54cf58df5abe120ff860e34282912B7/analise-swot-amazon)
