@@ -12,5 +12,11 @@
 
 #Caio Barreto Fontelles Cordeiro
 
-Atividade 1 : Trello link
+Atividade 1 : Trello link Análise SWOT
 -[Grupo: Caio Barreto, Lucas Kiemle, Paulinna e Allan] (https://trello.com/invite/b/GOPJrfkO/ATTI2e2f15b4c54cf58df5abe120ff860e34282912B7/analise-swot-amazon)
+
+Atividade 2 : Trello link Gerenciamento de Entregas
+
+-[Grupo: Caio Barreto, Valdir, Lucas Pontual, Yuri e João Antônio] (https://trello.com/invite/b/5enRkCmQ/ATTId39b235afbae040b95cf545a2f37a43010742827/gerenciamento-de-entregas-para-1c)
+
+
