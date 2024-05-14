@@ -13,10 +13,20 @@
 #Caio Barreto Fontelles Cordeiro
 
 Atividade 1 : Trello link Análise SWOT
--[Grupo: Caio Barreto, Lucas Kiemle, Paulinna e Allan] (https://trello.com/invite/b/GOPJrfkO/ATTI2e2f15b4c54cf58df5abe120ff860e34282912B7/analise-swot-amazon)
+(https://trello.com/invite/b/GOPJrfkO/ATTI2e2f15b4c54cf58df5abe120ff860e34282912B7/analise-swot-amazon)
 
 Atividade 2 : Trello link Gerenciamento de Entregas
 
--[Grupo: Caio Barreto, Valdir, Lucas Pontual, Yuri e João Antônio] (https://trello.com/invite/b/5enRkCmQ/ATTId39b235afbae040b95cf545a2f37a43010742827/gerenciamento-de-entregas-para-1c)
+(https://trello.com/invite/b/5enRkCmQ/ATTId39b235afbae040b95cf545a2f37a43010742827/gerenciamento-de-entregas-para-1c)
 
+Atividade 3 : Trello Indivídual
+
+(https://trello.com/invite/b/ZiMUmvmC/ATTI58f93c5d3d931764d4145b0f751ee1a42C609069/planejamento)
+
+Atividade 4 : Slides sobre Racismo
+
+(https://www.canva.com/design/DAGCfvKibA4/OlvxCvUgIoPQpSIN0uqHGQ/edit?utm_content=DAGCfvKibA4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+
+Atividade 5 : Linguagem GO 
+(https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit?utm_content=DAGEjaXxHqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
