@@ -30,3 +30,7 @@ Atividade 4 : Slides sobre Racismo
 Atividade 5 : Linguagem GO 
 (https://www.canva.com/design/DAGEjaXxHqU/f4kD7Ghe-EfPqTGlCe5M9g/edit?utm_content=DAGEjaXxHqU&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
+Atividade 6 : Miro
+
+(https://miro.com/app/board/uXjVKHNVMC8=/?share_link_id=603822042781)
+
