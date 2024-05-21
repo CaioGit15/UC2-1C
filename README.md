@@ -34,3 +34,6 @@ Atividade 6 : Miro
 
 (https://miro.com/app/board/uXjVKHNVMC8=/?share_link_id=603822042781)
 
+Atividade 7 : Emprego dos Sonhos
+(https://docs.google.com/document/d/1OYWWRCl3Y4Yky5mHIjvCgeW48BA3d6ET2La5VUiD-RQ/edit?usp=sharing)
+
