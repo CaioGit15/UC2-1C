@@ -37,3 +37,6 @@ Atividade 6 : Miro
 Atividade 7 : Emprego dos Sonhos
 (https://docs.google.com/document/d/1OYWWRCl3Y4Yky5mHIjvCgeW48BA3d6ET2La5VUiD-RQ/edit?usp=sharing)
 
+Atividade 8 : Gráfico de Gantt
+(https://docs.google.com/spreadsheets/d/1ewqQmUoS09z-dSF6Pn1uhlkEblI-ztx5bs8cDV_n3d8/edit?usp=sharing)
+
